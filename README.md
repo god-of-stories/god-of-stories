@@ -13,12 +13,12 @@
 $$\color{#D3DD64FF}loki\  \color{#739526}or\  \color{#93B14CFF}alex\ \color{#739526}.\  ☣︎  \color{#739526}he\  \color{#D3DD64FF}/\  \color{#93B14CFF}they\ \color{#739526}.$$
   <img width="63" height="18" alt="IMG_7517" src="https://github.com/user-attachments/assets/bc274a4c-09e6-44da-b198-271dedbf14de" />
 </p>
-<p align=center><img width="20" height="20" alt="IMG_7516" src="https://github.com/user-attachments/assets/fb35b221-9a87-47d6-ae75-ce4b9de7b660" />  $$\color{#93B14CFF}gender\ \color{#D3DD64FF}faun\  \color{#739526}demi\ \color{#739526}-\ \color{#93B14CFF}omni\  \color{#D3DD64FF}boy\ \color{#739526}thing\ \color{#739526}.$$   <img width="20" height="20" alt="IMG_7515" src="https://github.com/user-attachments/assets/1802b2a1-2415-40fd-837c-a22c58df58f1" />
+<p align=center><img width="63" height="18" alt="IMG_7516" src="https://github.com/user-attachments/assets/380ae050-c504-467b-a5f5-181a68e27507" />  $$\color{#93B14CFF}gender\ \color{#D3DD64FF}faun\  \color{#739526}demi\ \color{#739526}-\ \color{#93B14CFF}omni\  \color{#D3DD64FF}boy\ \color{#739526}thing\ \color{#739526}.$$   <img width="20" height="20" alt="IMG_7515" src="https://github.com/user-attachments/assets/1b1eced4-176a-471c-a5f5-a15a1fa4a085" />
 </p>
-<p align=center><img width="600" height="auto" alt="IMG_7512" src="https://github.com/user-attachments/assets/eecb9dcd-1d7f-4c0a-87fe-25755ec5ecd6" /></p>
+<p align=center><img width="600" height="20" alt="IMG_7512" src="https://github.com/user-attachments/assets/42bb1da1-df3b-42d3-ae4a-de0834020494" /></p>
 <p align=center
   
-[I](https://rentry.co/doctrr-wilson) [II](https://talentless.atabook.org/) [III](https://hamilburr.straw.page/) </p>
+[<img width="99" height="56" alt="f80a9577e179ac4b75163240426c9d5030577344" src="https://github.com/user-attachments/assets/f11e5f69-1d67-43ec-820b-019d36d2a35e" />](https://rentry.co/doctrr-wilson) [<img width="99" height="56" alt="IMG_8029" src="https://github.com/user-attachments/assets/6031f8df-4e20-43df-b670-68881e640b85" />](https://talentless.atabook.org/) [<img width="99" height="56" alt="813d157ec0d7125280a6438899fe349574c9b46f" src="https://github.com/user-attachments/assets/ab26c3ec-c5ac-4e1f-8f42-121906f104f0" />](https://hamilburr.straw.page/) </p>
 <p align=center><img width="400" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/e3ec8e92-d923-4d48-8d39-9a5bd4211b4b" /></p>
 <p align=center><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Are+You+Serious&pause=1000&color=739526&center=true&multiline=true&width=435&height=60&lines=now+that+we+'re+handcuffed+together+%2C+i+'ll+tell+you+%2C+%22+oh+it+'s+a+boy+.+%22;go+ahead+%2C+write+the+joke+%22+oh+he+'s+gay+!+%22+....+i+'m+crying+.." alt="Typing SVG" /></a></p>
 <img width="1500" height="600" alt="IMG_7507" src="https://github.com/user-attachments/assets/3e4e081f-e0c3-4e18-9bd6-683dd3256abd" />
