@@ -9,9 +9,9 @@
 <p align=center><img width="1500" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/52331eef-9bb2-44e7-95f1-a72a504269f6" /></p>
 <img width="1500" height="auto" alt="IMG_7513" src="https://github.com/user-attachments/assets/cb688fbe-06a9-4227-b702-a3fcdb427779" />
 <p align=center><img width="600" height="20" alt="IMG_7512" src="https://github.com/user-attachments/assets/42bb1da1-df3b-42d3-ae4a-de0834020494" /></p>
-<p align=center><img width="20" height="20" alt="IMG_7514" src="https://github.com/user-attachments/assets/f0d5e6e8-828f-4159-ae86-d64d37f5eb95" />  
-$$\color{#D3DD64FF}coy\  \color{#739526}or\  \color{#93B14CFF}alex\ \color{#739526}.\  ☘️  \color{#739526}he\  \color{#D3DD64FF}/\  \color{#93B14CFF}they\ \color{#739526}.$$
-  <img width="63" height="18" alt="IMG_7517" src="https://github.com/user-attachments/assets/248beaa5-e00b-40e4-990c-6c517367d39a" />
+<p align=center><img width="20" height="20" alt="IMG_7514" src="https://github.com/user-attachments/assets/27f9a6fd-dec0-42af-ba00-2de7ae90b4ea" />  
+$$\color{#D3DD64FF}loki\  \color{#739526}or\  \color{#93B14CFF}alex\ \color{#739526}.\  🐍  \color{#739526}he\  \color{#D3DD64FF}/\  \color{#93B14CFF}they\ \color{#739526}.$$
+  <img width="63" height="18" alt="IMG_7517" src="https://github.com/user-attachments/assets/bc274a4c-09e6-44da-b198-271dedbf14de" />
 </p>
 <p align=center><img width="20" height="20" alt="IMG_7516" src="https://github.com/user-attachments/assets/fb35b221-9a87-47d6-ae75-ce4b9de7b660" />  $$\color{#93B14CFF}gender\ \color{#D3DD64FF}faun\  \color{#739526}demi\ \color{#739526}-\ \color{#93B14CFF}omni\  \color{#D3DD64FF}boy\ \color{#739526}thing\ \color{#739526}.$$   <img width="20" height="20" alt="IMG_7515" src="https://github.com/user-attachments/assets/1802b2a1-2415-40fd-837c-a22c58df58f1" />
 </p>
