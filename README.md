@@ -5,11 +5,11 @@
 </p>
 <img width="1500" height="auto" alt="IMG_7506" src="https://github.com/user-attachments/assets/e16ed473-d8e2-46d5-a3a8-d369d4901fcb" />
 <img width="1500" height="auto" alt="IMG_7506" src="https://github.com/user-attachments/assets/406f4053-d2ee-46ac-a2c3-7ee29643edf5" />
-<p align=center><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Are+You+Serious&pause=1000&color=739526&center=true&multiline=true&width=435&lines=the+luck+lady+...+is+a+BOY+%2C+anthony+!+fine+!" alt="Typing SVG" /></a></p>
-<p align=center><img width="400" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/a7b5724d-8826-4cea-b776-964c91160756" /></p>
+<p align=center><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lavishly+Yours&size=24&pause=1000&color=FFFDB7&center=true&width=565&height=60&lines=what%2C+because+i...+i...+i+am+the+monster+parents+tell+their+children+about+at+night%3F;you+know%2C+it+all+makes+sense+now%2C+why+you+favored+thor+all+these+years%2C" alt="Typing SVG" /></a></p>
+<p align=center><img width="1500" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/52331eef-9bb2-44e7-95f1-a72a504269f6" /></p>
 <img width="1500" height="auto" alt="IMG_7513" src="https://github.com/user-attachments/assets/cb688fbe-06a9-4227-b702-a3fcdb427779" />
-<p align=center><img width="600" height="auto" alt="IMG_7512" src="https://github.com/user-attachments/assets/3b3e913b-f0d0-42b0-a851-028d88a513fa" /></p>
-<p align=center><img width="20" height="20" alt="IMG_7514" src="https://github.com/user-attachments/assets/52f7d407-6bbc-453b-a188-96a45580117b" />  
+<p align=center><img width="600" height="20" alt="IMG_7512" src="https://github.com/user-attachments/assets/42bb1da1-df3b-42d3-ae4a-de0834020494" /></p>
+<p align=center><img width="20" height="20" alt="IMG_7514" src="https://github.com/user-attachments/assets/f0d5e6e8-828f-4159-ae86-d64d37f5eb95" />  
 $$\color{#D3DD64FF}coy\  \color{#739526}or\  \color{#93B14CFF}alex\ \color{#739526}.\  ☘️  \color{#739526}he\  \color{#D3DD64FF}/\  \color{#93B14CFF}they\ \color{#739526}.$$
   <img width="63" height="18" alt="IMG_7517" src="https://github.com/user-attachments/assets/248beaa5-e00b-40e4-990c-6c517367d39a" />
 </p>
