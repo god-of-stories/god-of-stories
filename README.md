@@ -7,7 +7,7 @@
 <img width="1500" height="auto" alt="IMG_7506" src="https://github.com/user-attachments/assets/406f4053-d2ee-46ac-a2c3-7ee29643edf5" />
 <p align=center><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lavishly+Yours&size=24&pause=1000&color=FFFDB7&center=true&width=565&height=60&lines=what%2C+because+i...+i...+i+am+the+monster+parents+tell+their+children+about+at+night%3F;you+know%2C+it+all+makes+sense+now%2C+why+you+favored+thor+all+these+years%2C" alt="Typing SVG" /></a></p>
 <p align=center><img width="1500" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/52331eef-9bb2-44e7-95f1-a72a504269f6" /></p>
-<img width="1500" height="auto" alt="IMG_7513" src="https://github.com/user-attachments/assets/cb688fbe-06a9-4227-b702-a3fcdb427779" />
+<img width="1500" height="auto" alt="IMG_7513" src="https://github.com/user-attachments/assets/fa53a921-63fe-4533-a7a1-17a319ea5222" />
 <p align=center><img width="600" height="20" alt="IMG_7512" src="https://github.com/user-attachments/assets/42bb1da1-df3b-42d3-ae4a-de0834020494" /></p>
 <p align=center><img width="20" height="20" alt="IMG_7514" src="https://github.com/user-attachments/assets/27f9a6fd-dec0-42af-ba00-2de7ae90b4ea" />  
 $$\color{#FFFDB7FF}loki\  \color{#093d70}or\  \color{#16828a}alex\ \color{#093d70}.\  ☣︎  \color{#093d70}he\  \color{#FFFDB7FF}/\  \color{#16828a}they\ \color{#093d70}.$$
