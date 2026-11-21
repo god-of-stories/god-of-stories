@@ -7,7 +7,7 @@
 
 <div align="center">
 
-| <details><summary>about</summary>loki , skald , or alex . <br/> he , they princess . fictkin & yume</details> | |
+| ![border]()<br/><details><summary>about</summary>placeholder</details><br/><details><summary>awards</summary>placeholder</details><br/> ![button 1]() ![button 2]() ![button 3]()<br/>![border]()| ![border]()<br/>![graphic]()<br/>![border]() |
 | :---: | :---: |
 </div>
 <p align="center">new repository soon ... links are below</p>
