@@ -3,7 +3,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126fmw2f6cuhyykbxzkfgyn7ize&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b594&bar_color_cover=false">
   </a>
 </p>
-<p align="center"><img width="auto" height="auto" alt="ezgif com-optimize 5" src="https://files.catbox.moe/nuoqra.gif" /></p>
+<p align="center"><img width="auto" height="auto" alt="ezgif com-optiwebp" src="https://github.com/user-attachments/assets/350b0cce-6f83-4339-bcaa-4ec49ea41009" /></p>
 
 <p align="center">new repository soon ... links are below</p>
   
