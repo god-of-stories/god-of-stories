@@ -1,10 +1,8 @@
 <img width="auto" height="auto" alt="ezgif com-optimize 10" src="https://github.com/user-attachments/assets/2462dc7c-ac2f-4f78-854f-0dfc5d482146" />
 
 <p align="center"><img width="auto" height="auto" alt="ezgif com-optimize 7" src="https://github.com/user-attachments/assets/4c30d556-d5dc-4f2a-bf11-cd7ffd928c09" /></p>
-<img width="20" height="20" alt="ezgif com-gif-maker (5)" src="https://github.com/user-attachments/assets/dd6394f3-2c7d-453c-9217-cfd0351b595a" />
-<p align="center">
-  $\color{rgb(194,225,193)}{\textsf{god(dess) of stories .     ४      skald of realms .}}$ </p>
-<img width="20" height="20" alt="ezgif com-gif-maker (6)" src="https://github.com/user-attachments/assets/db2d9682-cb73-4f57-9f41-324f78571b6c" />
+<img width="20" height="20" alt="ezgif com-gif-maker (5)" src="https://github.com/user-attachments/assets/dd6394f3-2c7d-453c-9217-cfd0351b595a" /> <p align="center">
+  $\color{rgb(194,225,193)}{\textsf{god(dess) of stories .     ४      skald of realms .}}$ </p> <img width="20" height="20" alt="ezgif com-gif-maker (6)" src="https://github.com/user-attachments/assets/db2d9682-cb73-4f57-9f41-324f78571b6c" />
 
 <p align="center">new repository soon ... links are below</p>
   
