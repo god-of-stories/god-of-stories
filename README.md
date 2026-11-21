@@ -2,7 +2,7 @@
 
 <p align="center"><img width="auto" height="auto" alt="ezgif com-optimize 7" src="https://github.com/user-attachments/assets/4c30d556-d5dc-4f2a-bf11-cd7ffd928c09" /></p>
 <p align="center">
-  <sub> $\color{rgb(194,225,193)}{\textsf{god(dess) of stories .     ४      skald of realms .}}$</sub> </p>
+  $\color{rgb(194,225,193)}{\textsf{god(dess) of stories .     ४      skald of realms .}}$ </p>
 
 <p align="center">new repository soon ... links are below</p>
   
