@@ -7,7 +7,7 @@
 
 <div align="center">
 
-| info goes here | graphics go here |
+| <details><summary>about</summary>loki , skald , or alex . <br/> he , they princess . fictkin & yume</details> | |
 | :---: | :---: |
 </div>
 <p align="center">new repository soon ... links are below</p>
